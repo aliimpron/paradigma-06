@@ -1,0 +1,2 @@
+# paradigma-06
+ 
